@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @marsbit
+- 👋 Hi, I’m MARTINS AR (marsbit)
 - 👀 I’m interested in crypto community management and collab opportunities
 - 🌱 I’m currently learning project signaturing
 - 💞️ I’m looking to collaborate on crypto project community management and other advanced project role
